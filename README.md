@@ -7,9 +7,12 @@
 
 
 
-![YES](https://github.com/4th-wall/4th-wall/assets/130046893/54063150-c384-4104-ba79-f43ca2085921) 
-![coe](https://github.com/4th-wall/4th-wall/assets/130046893/a47c6bb0-f825-41c3-962e-4db0d3be5861)
 
-![coe](https://github.com/4th-wall/4th-wall/assets/130046893/95fd3ea3-70c4-4c3b-b057-feed21c48a71)
+
+
+
+![YES](https://github.com/4th-wall/4th-wall/assets/130046893/54063150-c384-4104-ba79-f43ca2085921) 
+
+![coe](https://github.com/4th-wall/4th-wall/assets/130046893/a47c6bb0-f825-41c3-962e-4db0d3be5861)
 
 ![TGAA](https://github.com/4th-wall/4th-wall/assets/130046893/13a22e3f-4a49-402d-8a7b-631776a82447)
