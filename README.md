@@ -2,7 +2,7 @@
  
  i would love to talk abt orv (!), ace attorney(!), lobcorp and rpg maker/indie horror games (vtsom, 8:11, zeno, OFF, cell of empireo etc)
 
- im sometimes offtab so please whisper to interact. ill respond eventually
+ im often offtab so please whisper to interact. ill respond eventually
 
 
 
